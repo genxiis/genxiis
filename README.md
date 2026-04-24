@@ -7,7 +7,8 @@
 </p>
 
 <p align="center">
-Greetings, I'm Gen! I usually sit around spawn on Pony Town, though I have a tendency of drawing or playing a different game offtab 90% of the time. For this reason, whispers to interact are very much encouraged! Otherwise there is a high possibility I won't be able to catch you talking to me.</p>
+<sub>Greetings, I'm Gen! I usually sit around spawn on Pony Town, though I have a tendency of drawing or playing a different game offtab 90% of the time. For this reason, whispers to interact are very much encouraged! Otherwise there is a high possibility I won't be able to catch you talking to me.</sub>
+</p>
 
 <p align="center">I'm really shy at first and don't really talk to anybody unless I'm spoken to, but I do enjoy making new friends from shared fandoms. I also don't mind C+H, so feel free to sit next to me if you want! I'm usually on my own anyway. ^^"
 </p>
