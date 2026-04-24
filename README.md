@@ -2,7 +2,7 @@
   <i>❝They call it center mass, that part they aim for.❞</i>
 </p>
 
-<br><br>
+<br>
 
 <p align="center">
   <b>✦ Genesis / Gen · She/He/They · Artist & Writer · INFP ✦</b><br>
@@ -15,13 +15,13 @@
 <p align="center">I'm really shy at first and don't really talk to anybody unless I'm spoken to, but I do enjoy making new friends from shared fandoms. I also don't mind C+H, so feel free to sit next to me if you want! I'm usually on my own anyway. ^^"
 </p>
 
-<br><br><br>
+<br><br>
 
 <p align="center">
 ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧
 </p>
 
-<br><br><br>
+<br><br>
 
 <p align="center">
 <b>´´ ✦ Before You Interact ✦ ´´</b> 
@@ -43,13 +43,13 @@ DO NOT INTERACT if you label yourself a proshipper / zoophile, if you're against
 <p align="center">Usually I do not mind it when a fandom of any kind interacts with me but just beware that I have little tolerance towards these respective ones: Hazbin Hotel / Helluva Boss, Harry Potter, Twenty One Pilots, My Chemical Romance, Stranger Things, Danganronpa, My Little Pony (more specifically the part of the fandom that constantly fights over ships ; I am a multishipper in the fandom and therefore I find this ridiculous), 
 </p>
 
-<br><br><br>
+<br><br>
 
 <p align="center">
 ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧
 </p>
 
-<br><br>
+<br>
 
 <p align="center">
   <b>✦ Thank you for reading! Have a great day! ✦</b><br>
