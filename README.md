@@ -5,7 +5,7 @@
 <br>
 
 <p align="center">
-  <b>✦ Genesis / Gen · She/He/They · Artist & Writer · INFP ✦</b><br>
+  <b>✦ Genesis / Gen · She/He/They · Artist & Writer · INFP ✦</b><br> 
 </p>
 
 <p align="center">
@@ -18,7 +18,7 @@
 <br>
 
 <p align="center">
-✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧
+── ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧ ──
 </p>
 
 <br>
@@ -48,7 +48,7 @@ DO NOT INTERACT if you label yourself a proshipper / zoophile, if you're against
 <br>
 
 <p align="center">
-✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧
+── ✧･ﾟ: *✧･ﾟ:* 　✦　 *:･ﾟ✧*:･ﾟ✧ ──
 </p>
 
 <br>
