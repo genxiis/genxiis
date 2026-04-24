@@ -1,5 +1,5 @@
 <p align="center">
-  <i><b>❝They call it center mass, that part they aim for. Shrink it down to nothing and forgetting what the pain's for.❞</b></i>
+  <i><b><sub>❝They call it center mass, that part they aim for. Shrink it down to nothing and forgetting what the pain's for.❞</sub></b></i>
 </p>
 
 <br>
@@ -54,5 +54,5 @@
 <br>
 
 <p align="center">
-  <b>✦ Thank you for reading! Have a great day! ✦</b><br>
+  <b><sub>✦ Thank you for reading! Have a great day! ✦</sub></b><br>
 </p>
