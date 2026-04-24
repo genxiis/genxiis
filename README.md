@@ -1,8 +1,8 @@
 <p align="center">
-  <i><b><sub>❝They call it center mass, that part they aim for. Shrink it down to nothing and forgetting what the pain's for.❞</sub></b></i>
+  <i><b>❝They call it center mass, that part they aim for. Shrink it down to nothing and forgetting what the pain's for.❞</b></i>
 </p>
 
-<br>
+<br><br>
 
 <p align="center">
   <b>✦ Genesis / Gen · She/He/They · Artist & Writer · INFP ✦</b><br> 
