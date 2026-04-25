@@ -36,7 +36,7 @@
 <p align="center">
 <sub>Before you interact, I must let you know that I am a twenty-two year old individual and would prefer to have friends / talk to people above the age of 18, so if you don't fit this specific rule maybe it's best you don't interact at all. I also block people FREELY, especially if they're a part of fandoms I've personally had unpleasant experiences with. Two of which are Stranger Things and Twenty One Pilots fandoms. So if you get blocked for no reason because you're a part of any of these, do not take it personally. I just like my peace a bit too much.</sub></p>
 
-<p align="center"><sub>I am rarely ever in the mood for roleplay due to constantly being pushed to continue roleplayes by various different people in the past. So usually, I'm not up for it, but you're free to ask me if I'd like to engage in a roleplay anyway! Who knows. I might be up for it at some pooint lol.</sub>
+<p align="center"><sub>I am rarely ever in the mood for roleplay due to constantly being pushed to continue roleplays by various different people in the past. So usually, I'm not up for it, but you're free to ask me if I'd like to engage in a roleplay anyway! Who knows. I might be up for it at some pooint lol.</sub>
 </p>
 
 <br>
