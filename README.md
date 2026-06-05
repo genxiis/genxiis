@@ -45,8 +45,6 @@
 <p align="center"><sub>If we share common interests such as Resident Evil, Overwatch, FNAF, etc, please don't hesitate to interact!!</sub>
 </p>
 
-<p align="center"><sub>Lowkey am a Leon S. Kennedy yumeshipper / self-shipper, however I am not non-sharing!</sub></p>
-
 <br>
 
 <p align="center">
