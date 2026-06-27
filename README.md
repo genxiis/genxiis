@@ -42,7 +42,7 @@
 <p align="center"><sub>I am rarely ever in the mood for serious roleplay due to constantly being pushed to continue roleplays by various different people in the past. So usually, I'm not up for it, but you're free to ask me if I'd like to engage in a roleplay anyway! Who knows. I might be up for it at some point lol.</sub>
 </p>
 
-<p align="center"><sub>If we share common interests such as Resident Evil, Overwatch, FNAF, etc, please don't hesitate to interact!!</sub>
+<p align="center"><sub>If we share common interests such as Resident Evil, Overwatch (feel free to ask for my battle tag!), FNAF, etc, please don't hesitate to interact!!</sub>
 </p>
 
 <br>
