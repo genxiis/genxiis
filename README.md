@@ -34,15 +34,15 @@
 </p>
 
 <p align="center">
-<sub>Before you interact, I must let you know that I am a twenty-two year old individual and would prefer to have friends / talk to people above the age of 18, so if you don't fit this specific rule maybe it's best you don't interact at all. I also block people FREELY, especially if they're a part of fandoms I've personally had unpleasant experiences with. Two of which are Stranger Things and Twenty One Pilots fandoms. So if you get blocked for no reason because you're a part of any of these, do not take it personally. I just like my peace a bit too much.</sub></p>
+<sub>Before you interact, I must let you know that I am a twenty-three year old individual and would prefer to have friends / talk to people above the age of 18, so if you don't fit this specific rule maybe it's best you don't interact at all. I also block people FREELY, especially if they're a part of fandoms I've personally had unpleasant experiences with. Two of which are Stranger Things and Twenty One Pilots fandoms. So if you get blocked for no reason because you're a part of any of these, do not take it personally. I just like my peace a bit too much.</sub></p>
 
 <p align="center">
-<sub>Personally I don't tend to sit next to people in fear of accidentally making them uncomfortable but I might if I see them all alone.</sub></p>
+<sub>Personally I don't tend to sit next to people in fear of accidentally making them uncomfortable but I might if I see them all alone and they're okay with C+H.</sub></p>
   
-<p align="center"><sub>I am rarely ever in the mood for serious roleplay due to constantly being pushed to continue roleplays by various different people in the past. So usually, I'm not up for it, but you're free to ask me if I'd like to engage in a roleplay anyway! Who knows. I might be up for it at some point lol.</sub>
+<p align="center"><sub>I am rarely ever in the mood for serious roleplay due to constantly being pushed to continue roleplays by various different people in the past. So usually, I'm not up for it, but you're free to ask me if I'd like to engage in a roleplay anyway! Who knows, I might be up for it at some point lol.</sub>
 </p>
 
-<p align="center"><sub>If we share common interests such as Resident Evil, Overwatch (feel free to ask for my battle tag!), FNAF, etc, please don't hesitate to interact!!</sub>
+<p align="center"><sub>If we share common interests such as Resident Evil, Overwatch (feel free to ask for my battle tag!), FNAF, My Little Pony, etc, please don't hesitate to interact!!</sub>
 </p>
 
 <br>
@@ -52,7 +52,7 @@
 </p>
 
 <p align="center">
-<sub>DO NOT INTERACT if you label yourself a proshipper / zoophile, if you're against the LGBTQ+ community (I myself am an openly bisexual woman), if you're straight up racist and a bigot. If you fake any sort of disorders you can also see yourself out, I do not want to talk to people who think having mental illnesses of any kind is quirky and fun.</sub></p>
+<sub>DO NOT INTERACT if you label yourself a proshipper / zoophile, if you're against the LGBTQ+ community (I myself am an openly bisexual individual), if you're straight up racist and a bigot. If you fake any sort of disorders you can also see yourself out, I do not want to talk to people who think having mental illnesses of any kind is quirky and fun.</sub></p>
 
 <p align="center"><sub>Usually I do not mind it when a fandom of any kind interacts with me but just beware that I have little tolerance towards these respective ones: Hazbin Hotel / Helluva Boss, Harry Potter, Twenty One Pilots, My Chemical Romance, Stranger Things, Danganronpa, My Little Pony (more specifically the part of the fandom that constantly fights over ships ; I am a multishipper in the fandom and therefore I find this ridiculous), among other ones that I cannot remember as I'm writing this lol.</sub>
 </p>
