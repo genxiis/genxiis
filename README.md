@@ -11,7 +11,7 @@
 <br><br>
 
 <p align="center">
-  <b>✦ Genesis / Gen · She/He/They · Artist & Writer · INFP ✦</b><br> 
+  <b>✦ Genesis / Gen · he/she/they · Artist & Writer · INFP ✦</b><br> 
 </p>
 
 <p align="center">
